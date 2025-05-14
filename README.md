@@ -1,0 +1,2 @@
+# -LA-TAK-P-S-STEM-
+İLAÇ TAKİBİ YAPMA 
